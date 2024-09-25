@@ -14,7 +14,8 @@ carolsouzasouza18@gmail.com
 
 @kdj-yhk
 
-![](https://media1.tenor.com/m/xxoAKwL_-FgAAAAC/one-piece-zoro.gif)
+![](https://media1.tenor.com/m/zZOt7alSzAMAAAAd/gojo-gojo-satoru.gif)
+
 
 
 
